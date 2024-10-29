@@ -4,7 +4,7 @@
 </p>
 <p align="center"> 
 ► <b>lotus</b>/power (<a href="https://pronouns.cc/@gweniiezy">+</a>) she/they
-<br>(<a href="https://rentry.co/P0WERZV">more information</a>) ― (<a href="https://retrospring.net/@gweniiez">retrospring</a>) 
+<br>(<a href="https://rentry.co/P0WERZV">more information</a>) ― (<a href="https://retrospring.net/@P0WERZV">retrospring</a>) 
 <br><br><b>► whisper to interact</b>,  i am if not always off-tab ! 
 <br>also i'm always on the personal tab  
 <br>so i won't really talk alot + or even talk first.
