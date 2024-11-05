@@ -3,7 +3,7 @@
 <img src="https://64.media.tumblr.com/4165c37042159be3db3f51faa45f902a/5d14eac90ebb7cc5-45/s540x810/d107b8f829f3f92a98acc1321d464f84a5016429.gifv">
 </p>
 <p align="center"> 
-► <b>lotus</b>/power (<a href="https://pronouns.cc/@gweniiezy">+</a>) she/they
+► <b>lotus</b>/power (<a href="https://pronouns.cc/@P0WERZV">+</a>) she/they
 <br>(<a href="https://rentry.co/P0WERZV">more information</a>) ― (<a href="https://retrospring.net/@P0WERZV">retrospring</a>) 
 <br><br><b>► whisper to interact</b>,  i am if not always off-tab ! 
 <br>also i'm always on the personal tab  
