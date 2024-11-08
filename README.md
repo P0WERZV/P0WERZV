@@ -6,9 +6,9 @@
 ► <b>lotus</b>/power (<a href="https://pronouns.cc/@P0WERZV">+</a>) she/they
 <br>(<a href="https://rentry.co/P0WERZV">more information</a>) ― (<a href="https://p0werzv.atabook.org">atabook</a>) 
 <br><br><b>► whisper to interact</b>,  i am if not always off-tab ! 
-<br>also i'm always on the personal tab  
-<br>so i won't really talk alot + or even talk first.
-<br>depending on mood or if i feel talkative.  
+<br>also i'm always on the personal tab so please whisper2int 
+<br>so i do not speak unless spoken too.
+<br>depending on my mood + unless i feel talkative.
 <p align="center">   
 <br><b><b>► if you're younger than 18, keep interactions short (please)</b>
 <br></b>i don't have a long dni, i'll just hide or ignore you if i need to!</b>
